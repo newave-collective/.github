@@ -1,1 +1,1 @@
-![github](https://github.com/newave-collective/.github/assets/60163694/0853c42d-2ee2-45ea-812b-4a17b8d2b11a)
+![github](https://github.com/newave-collective/.github/assets/60163694/8d93abfa-5da0-4f68-a7a2-50959bd3f5d7)
